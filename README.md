@@ -36,4 +36,4 @@ Here are a few things I've worked on:
 ---
 
 Thanks for visiting my profile! 👋  
-Feel free to explore my projects.
+Feel free to explore my project and connect for collaboration.
